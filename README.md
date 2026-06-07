@@ -1,6 +1,6 @@
 <div align="center"> 
   
-   $\color{#2e5866}{\text{   ~    ᵗʸ ˡᵒᵏⁱ  ᶠᵒʳ ᵍⁱᵗʰᵘᵇ ⁱⁿˢᵖᵒ      ~  }}$
+   $\color{#2e5866}{\text{   ~   ♡    ᵗʸ ˡᵒᵏⁱ  ᶠᵒʳ ᵍⁱᵗʰᵘᵇ ⁱⁿˢᵖᵒ  ♡    ~  }}$
 
   
 <img width="352" height="381" alt="image" src="https://github.com/user-attachments/assets/32e08fff-a9d3-4777-808d-d8b26d71afd3" />
