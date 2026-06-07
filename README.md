@@ -31,3 +31,10 @@
 
 
    $\color{#2e5866}{\text{   ~  Names   To  Call   Me   ~ }}$
+
+
+   $\color{#2e5866}{\text{   ~  ᵀᵒᶠᵘ    ,    ˢᵘˢʰⁱ  ~ }}$
+
+
+   $\color{#2e5866}{\text{   ~  ᴹᵒᶜʰⁱ    ,    ᴿᵃᵐᵉⁿ  ~ }}$
+
