@@ -38,3 +38,15 @@
 
    $\color{#2e5866}{\text{   ~  ᴹᵒᶜʰⁱ    ,    ᴿᵃᵐᵉⁿ  ~ }}$
 
+
+
+<div align="center">
+
+
+   $\color{#2e5866}{\text{   ~  Night    ,      Night    ,    Zuu  ~ }}$
+  
+<img width="205" height="63" alt="image" src="https://github.com/user-attachments/assets/d4275d14-9027-4f89-a972-ce57b1a09131" />
+
+
+
+
