@@ -50,7 +50,12 @@
 
 <div align="center">
   
-<img width="159" height="139" alt="image" src="https://github.com/user-attachments/assets/85efcfd6-2787-46a8-b405-39344a97aefe" />
+$\color{#2e5866}{\text{   ~ Zuu and Tofu wall ~ }}$
+  
+<img width="159" height="139" alt="image" src="https://github.com/user-attachments/assets/85efcfd6-2787-46a8-b405-39344a97aefe" /> <img width="168" height="134" alt="image" src="https://github.com/user-attachments/assets/0e429f60-7794-4afe-832c-c2d9b8848dad" />
+
+
+
 
 
 
